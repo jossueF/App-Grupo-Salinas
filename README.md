@@ -9,7 +9,7 @@
 
 ## Entregable
 `APK`
-https://drive.google.com/file/d/17-Oieuf9lZqvrci9vSNwEJoQGrRXI3_B/view?usp=sharing
+https://drive.google.com/file/d/1sCrACNkUFtX1c8HfvMS2aVHQ9YgIayf9/view?usp=sharing
 
 `Faltantes:`
 
